@@ -2,4 +2,4 @@
 
 Greedisgood!
 
-Here I am, the world will be chaged!
+Here I am, the world will be changed!
